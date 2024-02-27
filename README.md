@@ -14,3 +14,11 @@ For more information about the project, please refer to:
 -    the **[Inkscape Repository on GitLab](https://gitlab.com/inkscape/inkscape)**
 
 Image: <em>Freedom Machine</em> CC-BY-SA [Rizky Djati Munggaran](https://inkscape.org/~ridjam)
+
+
+
+Image: <em>Freedom Machine</em> CC-BY-SA [Rizky Djati Munggaran](https://inkscape.org/~ridjam)
+
+
+Image: <em>Freedom Machine</em> CC-BY-SA [Rizky Djati Munggaran](https://inkscape.org/~ridjam)
+
